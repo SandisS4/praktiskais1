@@ -1,0 +1,1 @@
+pirmais praktiakais darbs
